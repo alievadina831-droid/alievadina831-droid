@@ -5,4 +5,4 @@
 
 [Эксклюзив на Boosty](https://boosty.to/itdoctor) и донаты
 [Kypcbl Ha Stepik](https://stepik.org/users/387773773/teach)
-[
+
